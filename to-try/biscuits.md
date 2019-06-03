@@ -31,7 +31,7 @@ Sprinkle coarse salt on top of each, if desired. (you should. it brings the cook
 Remove from the oven and let cool on the cookie sheets (cookies will continue cooking and finish setting.)
 
 
-### 
+### Gingerbread biscuits
 
 **Ingredients**
 
