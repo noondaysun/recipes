@@ -4,7 +4,6 @@
 
 **Ingredients**
 
-
 * 1 stick unsalted butter, (browned if desired)
 * 1/2 cup granulated sugar
 * 1/4 cup brown sugar
@@ -34,7 +33,6 @@ Remove from the oven and let cool on the cookie sheets (cookies will continue co
 ### Gingerbread biscuits
 
 **Ingredients**
-
 
 * 225g unsalted butter, softened, plus extra to grease
 * 340g soft brown sugar
@@ -76,4 +74,86 @@ Roll out the dough between two sheets of clingfilm, cut out any shapes you like,
 
 >Alternatively, decorate the biscuits with writing icing or melt some chocolate in a heatproof bowl set over a pan of boiling water (or in the microwave) and drizzle over the cooled biscuits. Poke through the holes again if they become clogged with icing, then thread through a ribbon or a piece of string, to hang up the biscuits with.
 
-Recipe from [Felicity Cloake’s gingerbread biscuits]()
+Recipe from [Felicity Cloake’s gingerbread biscuits](https://www.theguardian.com/food/2018/dec/05/gingerbread-biscuits-decorations-recipe-felicity-cloake)
+
+
+### Nigella Lawson’s sweet and salty peanut biscuits
+
+**Ingredients**
+
+* light muscovado sugar 75g, plus more for dipping later
+* unsalted butter 100g
+* vegetable shortening such as Trex 50g
+* egg 1 large
+* vanilla extract 1 tsp
+* self-raising flour 175g
+* salted peanuts 125g
+* baking sheets 2, lined
+
+
+**Method**
+
+>Preheat the oven to 190C/gas mark 5. In a large bowl, mix together the sugar, butter, shortening, egg and vanilla. Just beat it together, no ceremony, to combine well. You may find this easiest to do with an electric mixer. Stir in the flour and then the peanuts – and that’s your dough done. Now, drop the dough in rounded teaspoons about 5cm apart onto the prepared baking sheets.
+
+>Oil the bottom of a glass, or brush with melted butter, and dip it into some more light muscovado sugar and then press gently on the biscuits to flatten them.
+
+>Bake for 8-10 minutes, by which time they should be cooked through (though remember that biscuits always continue to cook for a while out of the oven), then remove to a wire rack to cool.
+
+Recipe from [Nigella Lawson’s sweet and salty peanut biscuits](https://www.theguardian.com/food/2018/oct/31/nigella-lawson-peanut-cookies-butter-fingers-justin-gellatly-biscuits)
+
+
+### Justin Gellatly’s butter fingers
+
+**Ingredients**
+
+* plain flour 220g
+* fine sea salt a pinch
+* cornflour 70g
+* vanilla pod 1
+* unsalted butter 250g, softened
+* icing sugar 60g
+* dark chocolate 100g, 70% cocoa solids, broken into pieces
+
+
+**Method**
+
+>Preheat the oven to 160C/gas 3 and line two large baking trays with baking paper. Sift the flour, salt and cornflour into a large bowl and mix together well.
+
+>Split the vanilla pod and scrape out the seeds. Put into a food processor with the butter and icing sugar, add the flour mix and whizz until it becomes a smooth paste.
+
+>Put the mixture into a piping bag with a 1cm-wide star nozzle and pipe about 40 lines of fingers about 6cm long onto the prepared baking trays. Bake for 15 minutes, or until golden brown.
+
+>Leave on the trays for 5 minutes, then put on a rack to cool.
+
+>Melt the chocolate in a bowl over a pan of simmering water. When the fingers are cool, dip into your melted chocolate and place on a rack until the chocolate sets.
+
+Recipe from [Justin Gellatly’s butter fingers](https://www.theguardian.com/food/2018/oct/31/nigella-lawson-peanut-cookies-butter-fingers-justin-gellatly-biscuits)
+
+
+### Chocolate chip, rose and marzipan cookies
+
+**Ingredients**
+
+* butter 125g
+* light muscovado sugar 75g
+* caster sugar 75g
+* egg 1
+* plain flour 250g
+* bicarbonate of soda &frac12; tsp
+* crystallised rose petals 20g
+* marzipan 200g
+* dark chocolate 150g
+* vanilla extract
+
+
+**Method**
+
+>You will also need a baking sheet, lined with baking parchment
+
+>Set the oven at 200C/gas mark 6. Cream the butter and sugars together until they are light and the colour of milky coffee. You can do it by hand, but the lightest results are to be had from using an electric mixer fitted with a flat beater. Break the egg into a small bowl, mix the white and yolk together with a fork, then combine with the butter and sugar.
+
+>Mix the flour and bicarbonate of soda together and fold into the creamed butter and sugar mixture. Finely chop the rose petals and break or cut the marzipan into small pieces and add both to the mixture. Chop the chocolate into small nuggets then fold into the cookie dough with a couple of drops of vanilla extract.
+
+>Roll the mixture into spheres approximately the size of a golf ball, setting them out on the baking sheet, leaving room for them to spread. (I cook eight at a time on a 30 x 30cm baking sheet.) Bake for 10-12 minutes, until each cookie is pale and lightly risen. Remove the tray from the oven and leave to settle for 5 minutes before transferring to a cooling rack. Continue with the next batch. The cookies will keep in a biscuit tin for several days.
+
+Recipe from [Chocolate chip, rose and marzipan cookies](https://www.theguardian.com/food/2019/jan/13/nigel-slater-chocolate-chip-snack-recipes)
