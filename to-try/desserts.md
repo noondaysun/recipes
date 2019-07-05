@@ -14,13 +14,10 @@
 
 **Method**
 
->Mix the caramel with the salt, divide between 2 small glasses and chill.
-
->Melt the chocolates together in a glass bowl set over a pan of barely simmering water. Snap the grissini into short lengths, then dip each end into the chocolate to coat a little. Sit on a wire rack for the chocolate to drip and set a little, then dip the chocolate ends into the sugar to coat. Sit in an airtight container lined with baking parchment and chill to set until ready to serve.
-
->Stir the double cream and milk into the remaining melted chocolate until smooth, then scrape into a jug. Slowly pour on top of the caramel, around the edges first. Chill the pots for at least 2 hrs, or up to 24 hrs.
-
->To serve, scatter a little more sea salt on top of each pot, then add one or two sugar-tipped grissini.
+><p>Mix the caramel with the salt, divide between 2 small glasses and chill.</p>
+><p>Melt the chocolates together in a glass bowl set over a pan of barely simmering water. Snap the grissini into short lengths, then dip each end into the chocolate to coat a little. Sit on a wire rack for the chocolate to drip and set a little, then dip the chocolate ends into the sugar to coat. Sit in an airtight container lined with baking parchment and chill to set until ready to serve.</p>
+><p>Stir the double cream and milk into the remaining melted chocolate until smooth, then scrape into a jug. Slowly pour on top of the caramel, around the edges first. Chill the pots for at least 2 hrs, or up to 24 hrs.</p>
+><p>To serve, scatter a little more sea salt on top of each pot, then add one or two sugar-tipped grissini.</p>
 
 Recipe from [Salted caramel choc pots recipe](https://www.bbcgoodfood.com/recipes/1912638/salted-caramel-choc-pots)
 
@@ -41,17 +38,12 @@ Recipe from [Salted caramel choc pots recipe](https://www.bbcgoodfood.com/recipe
 
 **Method**
 
->Slowly bring the milk, cream, vanilla bean and scrapings and the condensed milk almost to boiling point, whisking occasionally as it heats up, then turn the heat off and leave for a few minutes.
-
->Soak the leaf gelatine in very cold water for five minutes. Drain it, gently squeezing out excess water, and stir it into the hot cream (if using powdered gelatine, sprinkle it over two tbsp cold water and stir until dissolved, then mix into the hot cream).
-
->Strain the mixture through a sieve (or simply remove the vanilla bean) and pour the mixture into six 200ml dariole moulds.
-
->Leave to cool to room temperature, then cover tightly and place in the fridge to set for at least eight hours.
-
->Put the sugar in a saucepan with the water, place over moderate heat and stir until the sugar dissolves, then, without stirring, cook until it colours a light caramel. Turn the heat down, add the blackberries and the balsamic (be careful as it will create hot steam) and cook until some of the berries collapse into the caramel, mashing a few with a spoon as they cook. Take off the heat and leave to cool.
-
->To serve, dip each mould into a bowl of hot water for a few seconds, then invert on to the centre of a plate and shake gently to release the panna cotta. Spoon the berries and their juices on top and around.
+><p>Slowly bring the milk, cream, vanilla bean and scrapings and the condensed milk almost to boiling point, whisking occasionally as it heats up, then turn the heat off and leave for a few minutes.</p>
+><p>Soak the leaf gelatine in very cold water for five minutes. Drain it, gently squeezing out excess water, and stir it into the hot cream (if using powdered gelatine, sprinkle it over two tbsp cold water and stir until dissolved, then mix into the hot cream).</p>
+><p>Strain the mixture through a sieve (or simply remove the vanilla bean) and pour the mixture into six 200ml dariole moulds.</p>
+><p>Leave to cool to room temperature, then cover tightly and place in the fridge to set for at least eight hours.</p>
+><p>Put the sugar in a saucepan with the water, place over moderate heat and stir until the sugar dissolves, then, without stirring, cook until it colours a light caramel. Turn the heat down, add the blackberries and the balsamic (be careful as it will create hot steam) and cook until some of the berries collapse into the caramel, mashing a few with a spoon as they cook. Take off the heat and leave to cool.</p>
+><p>To serve, dip each mould into a bowl of hot water for a few seconds, then invert on to the centre of a plate and shake gently to release the panna cotta. Spoon the berries and their juices on top and around.</p>
 
 Recipe from [Peter Gordons' panna cotta](https://www.theguardian.com/lifeandstyle/2018/jun/24/peter-gordons-panna-cotta-with-balsamic-blackberries-recipe)
 
@@ -84,12 +76,12 @@ Recipe from [Peter Gordons' panna cotta](https://www.theguardian.com/lifeandstyl
 
 **Method**
 
->Put the flour, sugar and salt in a food processor and whizz briefly with the butter, then add the egg and just enough cold water (one to two tablespoons) to bring it together into a dough. Alternatively, rub the butter in by hand, then stir in the egg and water. Form into a disc, wrap and chill for at least 30 minutes.
->Meanwhile, core and peel 400g of the apples and cut into chunks. Put in a pan with the butter, 75ml water and the vanilla pod, if using, and cook over a low heat until very soft, adding more water if necessary. Puree with a stick blender or mash well, and leave to cool.
->Grease a 25cm, fairly deep tart tin. Roll out the pastry on a lightly floured surface to about 5mm, and line the tin with it, pressing it in without stretching it and leaving some overhang. Prick in several places with a fork, and put in the fridge to chill.
->To make the frangipane, beat together the butter, icing sugar and almond essence until fluffy, then whisk in the egg. Fold in the remaining ingredients and a pinch of salt, and mix until well combined.
->If you’re feeling fussy, peel the remaining apples, but you really don’t have to, then core them, cut in half and slice to about 3-4mm thick.
->Heat the oven to 200C/390F/gas 6. Spread the pastry base with the apple puree and top with the frangipane mixture. Finally, top with the apple slices in two concentric overlapping circles, with a few in the middle, then bake for about 30 minutes, until golden brown.
->Heat the jam over a low heat until runny, then carefully brush the apples until glossy.
+><p>Put the flour, sugar and salt in a food processor and whizz briefly with the butter, then add the egg and just enough cold water (one to two tablespoons) to bring it together into a dough. Alternatively, rub the butter in by hand, then stir in the egg and water. Form into a disc, wrap and chill for at least 30 minutes.</p>
+><p>Meanwhile, core and peel 400g of the apples and cut into chunks. Put in a pan with the butter, 75ml water and the vanilla pod, if using, and cook over a low heat until very soft, adding more water if necessary. Puree with a stick blender or mash well, and leave to cool.</p>
+><p>Grease a 25cm, fairly deep tart tin. Roll out the pastry on a lightly floured surface to about 5mm, and line the tin with it, pressing it in without stretching it and leaving some overhang. Prick in several places with a fork, and put in the fridge to chill.</p>
+><p>To make the frangipane, beat together the butter, icing sugar and almond essence until fluffy, then whisk in the egg. Fold in the remaining ingredients and a pinch of salt, and mix until well combined.</p>
+><p>If you’re feeling fussy, peel the remaining apples, but you really don’t have to, then core them, cut in half and slice to about 3-4mm thick.<br />
+><p>Heat the oven to 200C/390F/gas 6. Spread the pastry base with the apple puree and top with the frangipane mixture. Finally, top with the apple slices in two concentric overlapping circles, with a few in the middle, then bake for about 30 minutes, until golden brown.</p>
+><p>Heat the jam over a low heat until runny, then carefully brush the apples until glossy.</p>
 
 Recipe from [Felicity Cloakes' French apple tart](https://www.theguardian.com/food/2018/sep/19/how-to-cook-the-perfect-french-apple-tart-recipe)
