@@ -54,3 +54,42 @@ Recipe from [Salted caramel choc pots recipe](https://www.bbcgoodfood.com/recipe
 >To serve, dip each mould into a bowl of hot water for a few seconds, then invert on to the centre of a plate and shake gently to release the panna cotta. Spoon the berries and their juices on top and around.
 
 Recipe from [Peter Gordons' panna cotta](https://www.theguardian.com/lifeandstyle/2018/jun/24/peter-gordons-panna-cotta-with-balsamic-blackberries-recipe)
+
+
+### French apple tart
+
+**Ingredients**
+
+*For the pastry*
+* 250g plain flour
+* 2 tbsp caster sugar
+* &frac12; tsp fine salt
+* 125g butter, diced
+* 1 egg, beaten
+
+*For the frangipane*
+* 60g soft butter
+* 60g icing sugar, sifted
+* 2 drops almond essence
+* 1 egg, beaten
+* 115g ground almonds
+* 1 tsp cornflour
+* 3 tbsp brandy or rum
+
+*For the filling*
+* 1kg eating apples, preferably dryish ones such as cox’s
+* 25g butter
+* 1 vanilla pod (optional)
+* 3 tbsp smooth apricot jam or quince jelly, to glaze 
+
+**Method**
+
+>Put the flour, sugar and salt in a food processor and whizz briefly with the butter, then add the egg and just enough cold water (one to two tablespoons) to bring it together into a dough. Alternatively, rub the butter in by hand, then stir in the egg and water. Form into a disc, wrap and chill for at least 30 minutes.
+>Meanwhile, core and peel 400g of the apples and cut into chunks. Put in a pan with the butter, 75ml water and the vanilla pod, if using, and cook over a low heat until very soft, adding more water if necessary. Puree with a stick blender or mash well, and leave to cool.
+>Grease a 25cm, fairly deep tart tin. Roll out the pastry on a lightly floured surface to about 5mm, and line the tin with it, pressing it in without stretching it and leaving some overhang. Prick in several places with a fork, and put in the fridge to chill.
+>To make the frangipane, beat together the butter, icing sugar and almond essence until fluffy, then whisk in the egg. Fold in the remaining ingredients and a pinch of salt, and mix until well combined.
+>If you’re feeling fussy, peel the remaining apples, but you really don’t have to, then core them, cut in half and slice to about 3-4mm thick.
+>Heat the oven to 200C/390F/gas 6. Spread the pastry base with the apple puree and top with the frangipane mixture. Finally, top with the apple slices in two concentric overlapping circles, with a few in the middle, then bake for about 30 minutes, until golden brown.
+>Heat the jam over a low heat until runny, then carefully brush the apples until glossy.
+
+Recipe from [Felicity Cloakes' French apple tart](https://www.theguardian.com/food/2018/sep/19/how-to-cook-the-perfect-french-apple-tart-recipe)
