@@ -60,3 +60,25 @@ Recipe from [Dorie Greenspans' Mediterranean yogurt cake](https://www.washington
 ><p>*Variations* This cake is an easy one to customise: swap lemon for other citrus fruits; or add a dash of gin or vodka to the drizzle; or make a spiced version by bringing the demerara sugar to a boil with 100ml water, the lemon zest and a tablespoon of squashed cardamom pods until the sugar dissolves, then turn off the heat and leave to infuse while the cake bakes.</p>
 
 Recipe from [Felicity Cloakes' lemon drizzle cake](https://www.theguardian.com/food/2019/jul/03/lemon-drizzle-cake-recipe-masterclass-felicity-cloake)
+
+
+### Easy lemon drizzle cake
+
+**Ingredients**
+
+* 225g/8oz unsalted butter, softened, plus extra for greasing
+* 225g/8oz caster sugar
+* 4 free-range eggs
+* 225g/8oz self-raising flour
+* 1 unwaxed lemon, zest and juice
+* 85g/3oz icing sugar
+
+**Method**
+
+><p>Preheat the oven to 180C/160C Fan/Gas 4. Grease a 900g/2lb loaf tin with a little butter and line with baking paper.</p>
+><p>Tip the remaining butter and caster sugar into a food processor and blend for a few seconds. Add the eggs one at a time, blending after each addition. Add the flour and lemon zest and blend until smooth.</p>
+><p>Pour the batter into the lined baking tin, flatten the top with the back of a spoon and bake for 50–55 minutes. </p>
+><p>Meanwhile, stir together the lemon juice and icing sugar. When the cake has cooled a little, poke holes in the top using a skewer, chopstick or a piece of raw spaghetti. Drizzle over the icing, set aside for a few minutes, and serve.</p>
+
+
+Recipe from [Easy lemon drizzle cake recipe - BBC Food](https://www.bbc.co.uk/food/recipes/easy_lemon_drizzle_cake_78533)
